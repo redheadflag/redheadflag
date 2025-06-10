@@ -6,4 +6,4 @@
 
 🎓 I am studying for a Bachelor's degree in Computer Science at the University of Primorska
 
-💬 Contact me: [t.me/smplgdev](https://t.me/smplgdev)
+💬 Contact me: [t.me/redheadflag](https://t.me/redheadflag)
